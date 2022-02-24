@@ -1,0 +1,2 @@
+# szkolalekcjatemat
+szkola dzien dobty
